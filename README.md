@@ -1,2 +1,0 @@
-# Prodigy-infotech-
-Internship tasks 
